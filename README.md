@@ -55,5 +55,3 @@ Inglés: Avanzado
 ---
 
 ## Contacto
-✉️ Email: jreyespastene@hotmail.com  
-💼 LinkedIn: www.linkedin.com/in/juan-reyes-pastene-ab774612b   
